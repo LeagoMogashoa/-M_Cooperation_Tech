@@ -1,0 +1,2 @@
+# -M_Cooperation_Tech
+Welcome to the#M_Cooperation_Tech respository.You are than welcome to upload files here are share them with others. Our team will be working towards helping those who do not have adequate access to water services in relation to the rest of the 65% of households in South After.Our project looks into solving such a problem by integrating technology in ways that will implement a better life for these people. We wish to help those who are also not in reach of advanced technology such as smartphones, Laptops and smart TVs.
